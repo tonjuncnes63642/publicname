@@ -1,1 +1,1 @@
-The Rolls-Royce Phantom I, introduced in 1925, was the first Rolls-Royce model to feature a new inline-six engine, offering improved performance and refinement over earlier models.
+After the end of World War II, automobile manufacturers resumed civilian production and introduced new models designed to meet post-war demand for personal transportation.
