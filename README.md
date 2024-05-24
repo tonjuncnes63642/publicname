@@ -1,1 +1,1 @@
-The Rolls-Royce Silver Ghost, introduced in 1906, set new standards for luxury and reliability in automobile design, earning a reputation as the "best car in the world."
+The Ford Model T, which had dominated the automotive market in the previous decade, ceased production in 1927, marking the end of an era for the iconic "Tin Lizzie."
