@@ -1,1 +1,1 @@
-The Pierce-Arrow Model 66, introduced in 1909, was one of the most powerful cars of its time, featuring a massive 824 cubic inch engine capable of producing 66 horsepower.
+The Jeep, originally developed for military use by Willys-Overland and Ford, became an iconic vehicle of World War II and laid the foundation for the modern SUV.
