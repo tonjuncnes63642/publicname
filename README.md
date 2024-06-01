@@ -1,1 +1,1 @@
-The Pontiac Streamliner, introduced in 1942 but produced after World War II, featured streamlined styling and was one of the first cars to offer an automatic transmission as an option.
+The introduction of the Ford Model A in 1927 marked Ford's return to the market with a new, more modern car, featuring innovations like a sliding-gear transmission and hydraulic shock absorbers.
