@@ -1,1 +1,1 @@
-The Peerless Motor Car Company, founded in 1900, ceased automobile production in 1931 after struggling to compete with larger automakers during the economic downturn of the late 1920s.
+The Stanley Rocket, built by the Stanley brothers in 1906, set the world speed record for a steam-powered car, reaching a top speed of 127.66 mph at Ormond Beach, Florida.
