@@ -1,1 +1,1 @@
-The introduction of the Ford Model A in 1927 marked Ford's return to the market with a new, more modern car, featuring innovations like a sliding-gear transmission and hydraulic shock absorbers.
+The Chevrolet Fleetline Aerosedan, introduced in 1941 but popular in the post-war period, featured sleek styling and was one of the first cars to incorporate streamlining for improved aerodynamics.
