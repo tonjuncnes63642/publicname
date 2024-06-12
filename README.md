@@ -1,1 +1,1 @@
-The LaSalle, introduced by Cadillac in 1927, was a mid-priced luxury car designed to bridge the gap between Cadillac and its more affordable companion brand, Buick.
+Electric vehicles (EVs) were popular in the early 1900s, with companies like Baker Electric and Detroit Electric producing electric cars for urban transportation.
