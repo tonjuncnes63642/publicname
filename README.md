@@ -1,1 +1,1 @@
-The introduction of the Ford Model A in 1927 marked Ford's return to the market with a new, more modern car, featuring innovations like a sliding-gear transmission and hydraulic shock absorbers.
+The Chrysler Corporation was founded in 1925 by Walter Chrysler, quickly becoming one of the "Big Three" American automakers alongside Ford and General Motors.
