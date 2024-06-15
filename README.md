@@ -1,1 +1,1 @@
-The Chrysler Corporation was founded in 1925 by Walter Chrysler, quickly becoming one of the "Big Three" American automakers alongside Ford and General Motors.
+After the end of World War II, automobile manufacturers resumed civilian production and introduced new models designed to meet post-war demand for personal transportation.
