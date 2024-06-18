@@ -1,1 +1,1 @@
-The Chrysler Town & Country, introduced in 1941 but produced into the post-war period, was one of the first mass-produced wood-paneled station wagons, featuring distinctive styling and luxury amenities.
+The Model A, produced by Oldsmobile in 1901, was the first mass-produced American car to feature an assembly line manufacturing process, streamlining production and reducing costs.
