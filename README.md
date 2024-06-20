@@ -1,1 +1,1 @@
-The Oldsmobile 98, introduced in 1941 but produced into the post-war era, was a flagship model known for its powerful engine, luxurious amenities, and cutting-edge technology.
+The Studebaker Champion, introduced in 1939 but produced throughout the 1940s, was a popular mid-priced car known for its reliability, fuel efficiency, and stylish design.
