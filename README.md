@@ -1,1 +1,1 @@
-The Studebaker Champion, introduced in 1939 but produced throughout the 1940s, was a popular mid-priced car known for its reliability, fuel efficiency, and stylish design.
+The Chrysler Town & Country, introduced in 1941 but produced into the post-war period, was one of the first mass-produced wood-paneled station wagons, featuring distinctive styling and luxury amenities.
