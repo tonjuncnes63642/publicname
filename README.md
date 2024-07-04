@@ -1,1 +1,1 @@
-The Mercedes 35 hp, introduced in 1901, was one of the earliest examples of a high-performance sports car, winning races and setting records in Europe and the United States.
+The Chevrolet Fleetline Aerosedan, introduced in 1941 but popular in the post-war period, featured sleek styling and was one of the first cars to incorporate streamlining for improved aerodynamics.
