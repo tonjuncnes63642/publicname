@@ -1,1 +1,1 @@
-The Ford Super Deluxe, introduced in 1941 but produced into the post-war era, featured updated styling and amenities, making it a popular choice among American consumers.
+The Lincoln Motor Company, established in 1917, was acquired by Ford in 1922, positioning it as a luxury brand within the Ford Motor Company lineup.
