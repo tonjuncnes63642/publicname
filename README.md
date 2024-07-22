@@ -1,1 +1,1 @@
-The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
+The Hudson Commodore, introduced in 1941 but popular in the post-war years, was a full-size car known for its innovative "step-down" design, which lowered the car's center of gravity for improved handling.
