@@ -1,1 +1,1 @@
-The Great Depression, which began with the stock market crash of 1929, had a profound impact on the automotive industry, leading to widespread layoffs, factory closures, and consolidation among automakers.
+The Model A, produced by Oldsmobile in 1901, was the first mass-produced American car to feature an assembly line manufacturing process, streamlining production and reducing costs.
