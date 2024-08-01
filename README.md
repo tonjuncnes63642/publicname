@@ -1,1 +1,1 @@
-The Rolls-Royce Phantom I, introduced in 1925, was the first Rolls-Royce model to feature a new inline-six engine, offering improved performance and refinement over earlier models.
+The Ford Model T, introduced in 1908, revolutionized automobile manufacturing by being the first mass-produced car, making automobiles affordable for the average person.
