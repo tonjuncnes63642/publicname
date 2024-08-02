@@ -1,1 +1,1 @@
-The Ford Model T, introduced in 1908, revolutionized automobile manufacturing by being the first mass-produced car, making automobiles affordable for the average person.
+The Lincoln Motor Company, established in 1917, was acquired by Ford in 1922, positioning it as a luxury brand within the Ford Motor Company lineup.
